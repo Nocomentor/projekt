@@ -1,1 +1,1 @@
-Tutaj bendzie fajny projekt
+Tutaj będzie fajny projekt
